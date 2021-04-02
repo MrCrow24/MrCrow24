@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MrCrow24
+- 👋 Hi, I’m Tunahan
 - 👀 I’m interested in drawing and programing
 - 🌱 I’m currently learning web development and Python
 - 📫 Reach me on discord or Twitter: @MrCrow26, Tunahan#6319
